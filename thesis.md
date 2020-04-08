@@ -1,3 +1,3 @@
 #Meine Thesis
 
-Autor: T. Friedrich
+Autor: T. M. Friedrich
